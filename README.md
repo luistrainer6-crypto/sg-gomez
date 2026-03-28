@@ -4,7 +4,7 @@ Plan nutricional de Sergio Gómez en línea
 
 
 ---
-### 🤝 ¡Bienvenido al equipo, Sergio!
+### 🤝 ¡Bienvenido al equipo,!
 Es un gusto comenzar este proceso contigo, **Sergio Gómez**. 
 Este espacio está diseñado para que tengas toda la estructura de tu **Plan Nutricional** a la mano. 
 
